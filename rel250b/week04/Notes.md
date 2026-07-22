@@ -1,5 +1,7 @@
 ## D&C 49
 
+[//]: # (Revelation given by the Lord to Joseph Smith after a visit by Leman Copley)
+
 15 And again, verily I say unto you, that whoso forbiddeth to marry
 is not ordained of God, for marriage is ordained of God unto man.
 
@@ -10,7 +12,6 @@ might answer the end of its creation;
 17 And that it might be filled with the measure of man,
 according to his creation before the world was made.
 
-* * *
 
 ## Jacob 2
 
@@ -28,8 +29,6 @@ or cursed be the land for their sakes.
 I will command my people; otherwise they shall hearken unto these things.
 
 
-* * *
-
 
 ## Elder Bednar
 
@@ -43,3 +42,20 @@ toward exaltation. …
 - Reason 2: By divine design, both a man and a woman are needed
 to bring children into mortality and to provide the best setting
 for the rearing and nurturing of children.
+
+> Thus, marriage between a man and a woman is the *authorized channel*
+  through which *premortal spirits enter mortality*.
+
+[//]: # (It does not rule out un-authorized channels)
+
+
+
+## Ponder in Preparation for Class
+
+How would you explain why marriage between a man and a woman is essential to Heavenly Father’s plan?
+
+IN DEVELOPMENT
+
+
+
+
