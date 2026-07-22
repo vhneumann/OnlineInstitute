@@ -20,3 +20,24 @@ between the Lord and Satan.
 - Take those questions to the Lord, in His House.
 - In due time He will show you more light.
 
+---
+
+## Ponder
+
+What can you learn about the Lord from His commandments to the Saints
+to build temples?
+
+As I reflect about this question, a couple of thoughts come to my mind:
+
+- The Lord has the end in mind. He knows that we can only approach God through covenants. Temples are to be built and dedicated in order to perform those covenants.
+
+- Also, the Lord is a being who rejoices in communicating important truths to His people. Temples are quiet, holy places of sacred instruction. In them the Lord will communicate sacred matters to His people in a most effective way.
+
+Why would the Lord want His people to be endowed in the temple?
+
+The Lord wants His people to have
+
+ - Knowledge about where we came from, why we are here on Earth and where can we go after this life.
+ - Power to live the gospel and overcome adversity.
+
+ The endowment provides both.
